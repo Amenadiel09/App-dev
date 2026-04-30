@@ -24,7 +24,7 @@ He travels through a wormhole near Saturn, encountering different planets where 
 > "Love is the one thing that transcends time and space."
 
 ## Why I Like It
-- Stunning visuals of space 🌠  
+- Stunning visuals of space  
 - Emotional father-daughter story  
 - Mind-blowing science concepts  
 
