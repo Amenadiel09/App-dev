@@ -35,5 +35,9 @@ He travels through a wormhole near Saturn, encountering different planets where 
 | Visual Effects | 10/10 |
 | Soundtrack     | 10/10 |
 
-## 🔗 More Info
+## More Info
 [Watch Trailer](https://www.youtube.com)
+
+---
+
+*Interstellar is a powerful blend of science, emotion, and adventure that leaves a lasting impact.*
